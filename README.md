@@ -1,0 +1,1 @@
+pemuihan otomatis
